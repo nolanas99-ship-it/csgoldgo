@@ -1,0 +1,2 @@
+# csgoldgo
+dont gamble
